@@ -8,3 +8,4 @@ Gold - Woman's Skeet - USA
 Gold - Mixed Doubles - Japan
 USA men's basketball seems to not be able to work well together
 USA men's basketball are taking Ls for the first time
+Facts, they seem to be playing worse than the 2004 team. This is why you get zion.

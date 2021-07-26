@@ -13,3 +13,4 @@ Actually crazy, how do you have Booker, Durant, Draymond, Damian, Tatum, and mor
 Fr, Luka by himself is doing better than a team of all-stars lmao. They need to start putting college teams for world tournaments so we can actually gets some medals lol.
 Im saying, let my boy Giannis get out there and he can go handle it though.
 Giannis out partying lol. He prob pressing his favorite service bell as well lmao. 
+True, as he deserves though. Dude just went out to get 50 nugs from Chick Fil A as celebration.
